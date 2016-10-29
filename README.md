@@ -1,0 +1,2 @@
+# safelink.html
+bebas sekai
